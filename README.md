@@ -6,4 +6,4 @@ sou a Amanda
 tenho 15 anos
 sou aluna do cólegio JK 🦭
 to no cólegio desde ano passado e to pen
-![a cat thinking](https://tenor.com/pt-BR/view/cat-thinking-kitty-pondering-gif-14635465338792376727)
+<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/bb0138f6-5bc1-472c-8f8e-352b39a3627b" />
