@@ -4,3 +4,4 @@
 
 sou a Amanda
 tenho 15 anos
+sou aluno do cólegio JK 🦭
