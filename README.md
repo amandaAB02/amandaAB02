@@ -7,4 +7,4 @@ tenho 15 anos
 sou aluna do cólegio JK 🦭
 
 to no cólegio desde ano passado e to pensando se to fazendo o certo da minha vida
-https://media.tenor.com/olr0tUuWI7gAAAAi/cuh-cat.gif
+https://tenor.com/n6noBiSIXci.gif
